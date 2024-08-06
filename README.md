@@ -1,16 +1,13 @@
-## Hi there 👋
+## OIIEE👋
 
-<!--
-**js-vitmy/js-vitmy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## ESTE PERFIL PERTENCE A VICTOR E MYLENA!!!!
+- estudamos libras
+- fazemos curso na [alura](https://www.alura.com.br/)
+- utilizamos este espaço para organização e para compartilhar nossos projetos!!!
+- ## ENTRE EM CONTATO!
+- @vit_n25
+- dossantosvictornathan5@gmail.com
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ![](https://media1.tenor.com/m/GqRRX_s5XLgAAAAd/miss-you-kiss.gif)
+ 
+ ![](https://media1.tenor.com/m/pZAc_Dg7EP8AAAAC/gretchen-maria-odete-brito-de-miranda.gif)
